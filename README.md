@@ -9,12 +9,12 @@ https://trailblazer.me/id/suryt6
 
 Team Member 2 – 
 
-https://trailblazer
+https://trailblazer.me/id/eeatheesh
 
-.me/id/eeatheesh
+
 
 Team Member 3 –
 
-https://trailblazer
+https://trailblazer.me./id/bbyresan
 
-.me./id/bbyresan
+
