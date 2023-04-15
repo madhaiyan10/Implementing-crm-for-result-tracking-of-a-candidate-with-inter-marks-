@@ -1,7 +1,7 @@
 # Implementing-crm-for-result-tracking-of-a-candidate-with-inter-marks-
 
 
-Team Lead - https://trailblazer.me/id/strailhead
+Team Lead - https://trailblazer.me/id/smaadhu123
 
 Team Member 1 –
 
